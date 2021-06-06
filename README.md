@@ -1,4 +1,7 @@
 ### Hi there 👋
+Am laura,I was born 9/06 on 2005 in Duitama,Boyaca Colombia. Today I am 15 years old, My familly is conformaded for my dad Leonardo Fiquitiva, My mum Jeimy Mojica and my little sister Sara Mariana, I consider that I am one person who loved do many things for example: I love cooking deserts,I love go to the mall, I love bear a part in my time with my family,I lovedlisten music,I love dance and in this moment I am learn dance salsa because i wanted dance salsa better.
+
+In general for talk about me is necesary have more time and i know that is difficult so for this reason this is a only part about me, I hope continue with this information in other moment after i talk you what happend with my salsa class
 
 <!--
 **Laura0906/Laura0906** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
